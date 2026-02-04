@@ -1,3 +1,0 @@
-# KellenPartridgeWebsite
-# KellenPartridgeWebsite
-# KellenPartridgeWebsite
